@@ -1,1 +1,0 @@
-# abc-license-bd-assets
